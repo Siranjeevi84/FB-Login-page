@@ -1,1 +1,0 @@
-# siran_uchiha
